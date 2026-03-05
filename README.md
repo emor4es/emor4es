@@ -1,4 +1,4 @@
-#🌸 emor4es
+🌸 emor4es 🌸
 
 Estudante de desenvolvimento web interessado em tecnologia, criatividade e aprendizado contínuo.
 
